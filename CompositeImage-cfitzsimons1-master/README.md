@@ -1,1 +1,0 @@
-# CompositeImage-cfitzsimons1
